@@ -1,0 +1,51 @@
+# ミサキ(CV:橘田いずみ)、コーリン(CV:三森すずこ) – Ride on fight!
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+It's magic Kin iro no Ride on my fight! Motto
+Yume ni tachimukaeru yo
+GIRIGIRI no joukyou datte Iku yo
+Genkai wo koeta FIIRUDO he
+
+Kuyashii namida Kizutsuita kibou mo
+Minna mirai no takaramono da yo
+DAIYAMONDO ni makenai PURAIDO
+Kachi aru kagayaki Ima kono te ni
+
+Dareyori tsuyoku
+Shinjirareru kyou ga
+Kiseki okosu egao ni naru yo
+
+It's magic Kirifuda wa Ride on my turn! Motto
+Atsui HAATO miseru yo
+GIRIGIRI no chousen datte Kitto
+Unmei wo kaketa FIIRUDO he
+
+Kitto hitori jya yuraideru kakugomo
+Kimi no hitomi ga jishin ni kaeta no
+Nakama to dakara RINNKU suru IMEEJI
+Mada minu keshiki wo ima kono me ni
+
+Sora no mukou ni
+Asu no kotae ga aru
+Nandou datte te wo nobase ba ii
+
+It's magic gyakutenn no Ride on my eyes! Zutto
+Mirai mitsumete iru yo
+GIRIGIRI no syourai datte kitto
+Jyonetsu wo hatasu FIIRUDO he
+
+Koukai shinai ichido kiri no kyou ga
+Yume wo tsukamu egao ni naruyo
+
+It's magic kimi dake ni Ride on my wave! Motto
+Kiseki shinjite iruyo
+GIRIGIRI no kanjyou daite kitto
+Gyakkyou wo koeta FIRRUDO he
+
+It's magic Kin iro no Ride on my fight! Motto
+Yume ni tachimukaeru yo
+GIRIGIRI no joukyou datte Iku yo
+Genkai wo koeta FIIRUDO he
+```
